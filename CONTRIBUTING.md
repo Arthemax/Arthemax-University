@@ -1,0 +1,1 @@
+To contribute, please follow the guidelines provided in the attached code of conduct. Each contributor will obey and comply with the applicable laws and regulations. Any consent made will be fully the responsibility of the consent maker.
